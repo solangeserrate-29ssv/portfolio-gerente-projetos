@@ -9,8 +9,8 @@ Atuo de forma estratégica na gestão de projetos (PMI, Ágil, SAFE e Scrum), ga
 ---
 
 📍 **Localização:** Brasil  
-📧 **Contato:** solange.serrate@email.com  
-🔗 **LinkedIn:** [linkedin.com/in/solangeserrate](https://linkedin.com/in/solangeserrate)  
+📧 **Contato:** solangesvieira5@gmail.com  
+🔗 **LinkedIn:** [linkedin.com/in/solangeserrate](https://www.linkedin.com/in/solange-serrate-8173a436/)  
 
 ---
 
